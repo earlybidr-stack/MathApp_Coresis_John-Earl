@@ -1,1 +1,0 @@
-# MathApp_Coresis_John-Earl
